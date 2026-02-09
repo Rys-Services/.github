@@ -26,6 +26,6 @@ Our developers are specialized in building clean, powerful.
 ## 💼 Work With Us
 
 Interested in commissioning a custom solution or joining the studio?  
-Contact us at: **confunce@gmail.com / contact.xaander**
+Contact us at: **confunce@gmail.com / contact.xaander@gmail.com**
 
-> `All rights reserved © Sparkwaves Studios ®` 
+> `All rights reserved © Rys Studios ®` 
